@@ -9,6 +9,7 @@ Senior Apprentices serve as mentors for Apprentices in subsequent Cohorts of the
 Name  | Season(s) as Senior Apprentice
 :-------------: | :-------------:
 Julio Mansilla | Summer 2014 - Fall 2014
+Joseph Pollack  | Fall 2014 - Winter 2015
 
 
 
