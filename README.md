@@ -8,7 +8,7 @@ Senior Apprentices serve as mentors for Apprentices in subsequent Cohorts of the
 
 Name  | Season(s) as Senior Apprentice
 :-------------: | :-------------:
-Fakey McFakerton | Summer 2014 - Fall 2014
+Julio Mansilla | Summer 2014 - Fall 2014
 
 
 
