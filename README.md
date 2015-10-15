@@ -13,6 +13,7 @@ Chris Impastato | Fall 2014 - Winter 2015
 Scott Russell | Fall 2014 - Present
 Taiwo Togun    | Winter 2015 - Fall 2015
 Vicky Oliveira | Summer 2015 - Present
+Ronnie Simonelli | Summer 2015 - Present
 
 
 
