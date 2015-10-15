@@ -9,6 +9,7 @@ Senior Apprentices serve as mentors for Apprentices in subsequent Cohorts of the
 Name  | Season(s) as Senior Apprentice
 :-------------: | :-------------:
 Julio Mansilla | Summer 2014 - Fall 2014
+Taiwo Togun    | Winter 2015 - Fall 2015
 
 
 
