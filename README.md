@@ -9,7 +9,6 @@ Senior Apprentices serve as mentors for Apprentices in subsequent Cohorts of the
 Name  | Season(s) as Senior Apprentice
 :-------------: | :-------------:
 Julio Mansilla | Summer 2014 - Fall 2014
-Eric Bauerfeld | Fall 2015 - Winter 2016
-
+Eric Bauerfeld | Fall 2015 - Present
 
 
