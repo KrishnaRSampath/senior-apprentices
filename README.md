@@ -10,6 +10,8 @@ Name  | Season(s) as Senior Apprentice
 :-------------: | :-------------:
 Julio Mansilla | Summer 2014 - Fall 2014
 Chris Impastato | Fall 2014 - Winter 2015
+Scott Russell | Fall 2014 - Present
+
 
 
 
