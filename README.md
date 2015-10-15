@@ -15,4 +15,6 @@ Taiwo Togun    | Winter 2015 - Present
 Vicky Oliveira | Summer 2015 - Present
 Ronnie Simonelli | Summer 2015 - Present
 Peter Mooney | Fall 2015 - Winter 2015
+Joseph Pollack  | Fall 2014 - Winter 2015
+
 
