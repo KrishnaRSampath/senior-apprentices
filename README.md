@@ -14,7 +14,9 @@ Scott Russell | Fall 2014 - Present
 Taiwo Togun    | Winter 2015 - Present
 Vicky Oliveira | Summer 2015 - Present
 Ronnie Simonelli | Summer 2015 - Present
-Peter Mooney | Fall 2015 - Winter 2015
-Joseph Pollack  | Fall 2014 - Winter 2015
+Peter Mooney | Fall 2015 - Present
+Joseph Pollack  | Fall 2015 - Present
+James R. Zygmont | Summer 2015 - Present
+
 
 
