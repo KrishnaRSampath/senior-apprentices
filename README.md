@@ -22,5 +22,6 @@ Michael Solati | Fall 2015 - Present
 Blake Praharaj | Fall 2014 - Present(Remote, but available for screen shares!)
 Kino Rose | Winter 2016 - Present
 Pranav Bhandari | Winter 2016 - Present 
+William Mitchel | Winter 2016 - Present
 
 
