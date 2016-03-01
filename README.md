@@ -20,6 +20,7 @@ James R. Zygmont | Fall 2015 - Present
 Eric Bauerfeld | Fall 2015 - Present
 Michael Solati | Fall 2015 - Present
 Blake Praharaj | Fall 2014 - Present(Remote, but available for screen shares!)
-Kino Rose | Winter 2016
+Kino Rose | Winter 2016 - Present
+Pranav Bhandari | Winter 2016 - Present 
 
 
