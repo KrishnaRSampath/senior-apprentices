@@ -19,9 +19,11 @@ Joseph Pollack  | Fall 2015 - Present
 James R. Zygmont | Fall 2015 - Present
 Eric Bauerfeld | Fall 2015 - Present
 Michael Solati | Fall 2015 - Present
-Blake Praharaj | Fall 2014 - Present(Remote, but available for screen shares!)
+Blake Praharaj | Fall 2014 - Present (Remote, but available for screen shares!)
 Kino Rose | Winter 2016 - Present
 Pranav Bhandari | Winter 2016 - Present
 William Mitchel | Winter 2016 - Present
 Rainer Paskiewicz | Summer 2016 - Present
 Andrew Guthrie | Summer 2016 - Present
+Jon Hawks | Summer 2016 - Present
+Jake Conniff | Summer 2016 - Present
